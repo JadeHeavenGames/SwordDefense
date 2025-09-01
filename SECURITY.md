@@ -1,4 +1,4 @@
-CrazySeven Games — Privacy Policy
+JadeHigh Games — Privacy Policy
 Effective date: 2 April 2024
 Who we are
 JadeHigh Games (“JadeHigh”, “we”, “our”, “us”) provides mobile games, websites, and related services (the “Services”).
